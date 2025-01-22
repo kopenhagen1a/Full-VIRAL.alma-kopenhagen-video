@@ -1,7 +1,7 @@
 # Full-VIRAL.alma-kopenhagen-video
-<a href="https://kyrox.cfd/Full-VIRAL-alma-kopenhagen-video"> 🌐 Click Here To link (Full-VIRAL.alma kopenhagen video)
+<a href="https://quotanium.sbs/Full-VIRAL-alma-kopenhagen-video"> 🌐 Click Here To link (Full-VIRAL.alma kopenhagen video)
 
-🔴 ➤►DOWNLOAD👉👉🟢 ➤  <a href="https://kyrox.cfd/Full-VIRAL-alma-kopenhagen-video"> 🌐 Full-VIRAL.alma kopenhagen video
+🔴 ➤►DOWNLOAD👉👉🟢 ➤  <a href="https://quotanium.sbs/Full-VIRAL-alma-kopenhagen-video"> 🌐 Full-VIRAL.alma kopenhagen video
 
 Full-VIRAL.alma kopenhagen video
 
